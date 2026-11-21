@@ -14,4 +14,4 @@ I work **AI-first**. Claude Code, Codex and Cursor write a lot of the code. I ow
 
 **Previously:** Peak Health AI (HIPAA-regulated healthcare) · Lucid Green via Founder Therapy (product traceability) · Augmented Intelligence · Asal Technology (projects for Apple)
 
-🌐 [raslankiwan.github.io](https://raslankiwan.github.io) · 💼 [LinkedIn](https://linkedin.com/in/raslan-kiwan-429502114/) · ✉️ raslankiwan@gmail.com
+🌐 [raslankiwan.github.io](https://raslankiwan.github.io) · 💼 [LinkedIn](https://linkedin.com/in/raslan-kiwan-429502114/) · ✉️ raslankiwan@gmail.com · 📅 [Book a 30-min call](https://calendly.com/raslankiwan/30min)
